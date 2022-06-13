@@ -1,5 +1,7 @@
 ### Hity Filmowe 2022 Witają 👋
 
+https://cinemak.pl/blog/12-hitow-filmowych-w-2022
+
 Rok 2022 będzie wielkim rokiem dla filmów, jak zobaczysz na naszej liście 12 najbardziej oczekiwanych hitów roku. Ta lista zawiera zarówno sequele popularnych serii, jak i samodzielne filmy, które mogą stać się natychmiastowymi klasykami. Dodaliśmy również kilka niskobudżetowych filmów, które mogą nas wszystkich zaskoczyć swoją jakością.
 
 Przeboje kinowe to filmy wysokobudżetowe, które często przyciągają najwięcej uwagi. To właśnie je zobaczysz na billboardach, w czasopismach i w telewizji.
